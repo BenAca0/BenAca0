@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BenAca0
 - 👀 I’m interested in gaming and gaming development and crypto
-- 🌱 I’m currently learning how to develop games 
+- 🌱 I’m currently learning how to develop games and earn profitable 
 - 💞️ I’m looking to collaborate on best game projects 
 - 📫 How to reach me, you can find me on Fifa games network and you can follow me on twitter @benaca00 
 
